@@ -103,3 +103,9 @@ There are several instances in the Old Testament where the nation of Israel is m
    *"Is Ephraim my dear son? Is he my darling child? For as often as I speak against him, I do remember him still. Therefore my heart yearns for him; I will surely have mercy on him, declares the LORD."*
 
 These metaphors often serve to illustrate the intimate, covenantal relationship between God and Israel, portraying the nation as a single entity, often likened to a person, child, or servant in order to convey spiritual lessons and messages.
+
+
+
+### Next topic: Prophesy of Roman Empire will change the calendar and the laws of Jews using new testament
+Daniel 7:25
+25 And he shall speak great words against the most High, and shall wear out the saints of the most High, and think to change times and laws: and they shall be given into his hand until a time and times and the dividing of time.
