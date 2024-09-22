@@ -1,8 +1,69 @@
 # garden
 plant, flowers, and trees
 
+# Debunking the Jesus prophesy
+The Old Testament contains several verses that Christians believe prophesy about the coming of Jesus Christ. While these verses do not directly mention Jesus by name, they are often interpreted as pointing to His life, death, and mission. Here are some key Old Testament prophecies that are commonly understood to be fulfilled in Jesus:
 
-## Topic: The prophesy of Isaiah 7:14 ( Therefore the Lord Himself shall give you a sign: Behold, a virgin shall conceive and bear a Son, and shall call His name Immanuel.  ) is not for Jesus but for Ahaz
+### 1. **Born of a Virgin**
+   - **Isaiah 7:14**:  
+     "Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel."
+
+### 2. **Born in Bethlehem**
+   - **Micah 5:2**:  
+     "But you, Bethlehem Ephrathah, though you are small among the clans of Judah, out of you will come for me one who will be ruler over Israel, whose origins are from of old, from ancient times."
+
+### 3. **Descendant of David**
+   - **Jeremiah 23:5-6**:  
+     "The days are coming, declares the Lord, when I will raise up for David a righteous Branch, a King who will reign wisely and do what is just and right in the land. In his days Judah will be saved and Israel will live in safety. This is the name by which he will be called: The Lord Our Righteous Savior."
+
+   - **Isaiah 9:6-7**:  
+     "For to us a child is born, to us a son is given, and the government will be on his shoulders. And he will be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. Of the greatness of his government and peace there will be no end. He will reign on David’s throne and over his kingdom..."
+
+### 4. **Preceded by a Messenger (John the Baptist)**
+   - **Isaiah 40:3**:  
+     "A voice of one calling: 'In the wilderness prepare the way for the Lord; make straight in the desert a highway for our God.'"
+   - **Malachi 3:1**:  
+     "I will send my messenger, who will prepare the way before me. Then suddenly the Lord you are seeking will come to his temple; the messenger of the covenant, whom you desire, will come."
+
+### 5. **Rejected by His Own People**
+   - **Isaiah 53:3**:  
+     "He was despised and rejected by mankind, a man of suffering, and familiar with pain. Like one from whom people hide their faces he was despised, and we held him in low esteem."
+
+### 6. **Suffered for Our Sins**
+   - **Isaiah 53:4-6**:  
+     "Surely he took up our pain and bore our suffering, yet we considered him punished by God, stricken by him, and afflicted. But he was pierced for our transgressions, he was crushed for our iniquities; the punishment that brought us peace was on him, and by his wounds we are healed."
+
+### 7. **Crucifixion and Pierced Hands and Feet**
+   - **Psalm 22:16**:  
+     "Dogs surround me, a pack of villains encircles me; they pierce my hands and my feet."
+   
+   - **Zechariah 12:10**:  
+     "They will look on me, the one they have pierced, and they will mourn for him as one mourns for an only child..."
+
+### 8. **Betrayed for 30 Pieces of Silver**
+   - **Zechariah 11:12-13**:  
+     "I told them, 'If you think it best, give me my pay; but if not, keep it.' So they paid me thirty pieces of silver. And the Lord said to me, 'Throw it to the potter'—the handsome price at which they valued me! So I took the thirty pieces of silver and threw them to the potter at the house of the Lord."
+
+### 9. **Silent before His Accusers**
+   - **Isaiah 53:7**:  
+     "He was oppressed and afflicted, yet he did not open his mouth; he was led like a lamb to the slaughter, and as a sheep before its shearers is silent, so he did not open his mouth."
+
+### 10. **Resurrection from the Dead**
+   - **Psalm 16:10**:  
+     "Because you will not abandon me to the realm of the dead, nor will you let your faithful one see decay."
+
+### 11. **Ascension and Eternal Reign**
+   - **Psalm 68:18**:  
+     "When you ascended on high, you took many captives; you received gifts from people, even from the rebellious—that you, Lord God, might dwell there."
+
+   - **Daniel 7:13-14**:  
+     "In my vision at night I looked, and there before me was one like a son of man, coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him."
+
+These are some of the key Old Testament verses that are often interpreted as messianic prophecies by Christians, pointing to the life, death, and resurrection of Jesus Christ.
+
+# Debunked Topics
+
+## Topic 1. **Born of a Virgin**: The prophesy of Isaiah 7:14 ( Therefore the Lord Himself shall give you a sign: Behold, a virgin shall conceive and bear a Son, and shall call His name Immanuel.  ) is not for Jesus but for Ahaz
 
 Isaiah 7:14 is a well-known prophecy in the Old Testament, which says:
 
