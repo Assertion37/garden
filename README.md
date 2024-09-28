@@ -106,6 +106,33 @@ These metaphors often serve to illustrate the intimate, covenantal relationship 
 
 
 
-### Next topic: Prophesy of Roman Empire will change the calendar and the laws of Jews using new testament
+### Prophesy: Prophesy of Roman Empire will change the calendar and the laws of Jews using new testament
 Daniel 7:25
 25 And he shall speak great words against the most High, and shall wear out the saints of the most High, and think to change times and laws: and they shall be given into his hand until a time and times and the dividing of time.
+
+### Lecture: Sabbath
+Isaiah 56:2 keep Sabbath, not profaning it.
+The law for observing the Sabbath is found in several places in the Old Testament, particularly in the books of Exodus, Leviticus, and Deuteronomy. The Sabbath is the seventh day of the week, set aside for rest and worship, and it is established as part of the Ten Commandments. Here are the main passages:
+
+### 1. **Exodus 20:8-11 (The Ten Commandments)**
+   - *“Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the Lord your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the Lord made heaven and earth, the sea, and all that is in them, and rested on the seventh day. Therefore the Lord blessed the Sabbath day and made it holy.”*
+
+   This passage provides the basic command to observe the Sabbath and explains its connection to God's rest after creation.
+
+### 2. **Deuteronomy 5:12-15 (The Ten Commandments Repeated)**
+   - *“Observe the Sabbath day, to keep it holy, as the Lord your God commanded you. Six days you shall labor and do all your work, but the seventh day is a Sabbath to the Lord your God. On it you shall not do any work, you or your son or your daughter or your male servant or your female servant or your ox or your donkey or any of your livestock, or the sojourner who is within your gates, that your male servant and your female servant may rest as well as you. You shall remember that you were a slave in the land of Egypt, and the Lord your God brought you out from there with a mighty hand and an outstretched arm. Therefore the Lord your God commanded you to keep the Sabbath day.”*
+
+   This version emphasizes the importance of the Sabbath as a reminder of the Israelites' deliverance from slavery in Egypt.
+
+### 3. **Leviticus 23:3**
+   - *“Six days shall work be done, but on the seventh day is a Sabbath of solemn rest, a holy convocation. You shall do no work. It is a Sabbath to the Lord in all your dwelling places.”*
+
+   This passage describes the Sabbath as a day of rest and a holy assembly.
+
+### 4. **Exodus 31:13-17**
+   - *“You are to speak to the people of Israel and say, ‘Above all you shall keep my Sabbaths, for this is a sign between me and you throughout your generations, that you may know that I, the Lord, sanctify you... Therefore the people of Israel shall keep the Sabbath, observing the Sabbath throughout their generations, as a covenant forever. It is a sign forever between me and the people of Israel that in six days the Lord made heaven and earth, and on the seventh day he rested and was refreshed.’”*
+
+   This passage emphasizes the Sabbath as a perpetual covenant and sign between God and the people of Israel.
+
+These passages lay out the foundation for the observance of the Sabbath as a day of rest, holiness, and remembrance of both creation and the Israelites' deliverance from slavery. The Sabbath was central to the covenant relationship between God and the Israelites and was one of the defining features of their worship.
+
